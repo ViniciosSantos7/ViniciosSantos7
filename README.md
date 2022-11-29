@@ -1,0 +1,4 @@
+- 👋 Olá me chamo @ViniciosSantos7 
+- 👀 Eu me interesso  por jogo/games
+- 🌱 Eu atualmente  estou aprendendo Inglẽs 
+- 📫 Como chegar até mim, vinicios,santo.oliveira@escola.pr.gov.br
